@@ -237,6 +237,29 @@ https://www.tum.de/en/studies/degree-programs/detail/electrical-engineering-and-
 
 
 
+## links
+
+- https://www.reddit.com/user/milahu
+  - https://www.reveddit.com/y/milahu/
+  - https://www.reddit.com/user/milahu2
+- https://gab.com/milahu
+- https://www.facebook.com/mila.nautikus
+  - https://www.facebook.com/findus.kohlhase
+- https://www.last.fm/user/emmhu21
+  - https://www.last.fm/user/milahu
+  - https://www.last.fm/user/kroetikroet
+  - https://www.last.fm/user/m_11
+- https://www.youtube.com/milahu
+  - https://www.youtube.com/@kroetiikroet
+- https://imgur.com/user/milaxnuts
+- https://hypothes.is/users/milahu
+- https://substack.com/@milahu
+- https://disqus.com/by/milahu/
+- https://www.goodreads.com/milahu
+- https://libgen.bz/author.php?id=688981
+
+
+
 ## contact
 
 see [github.com/milahu/contact](https://github.com/milahu/contact)
